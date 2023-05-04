@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kunalcpp
-- 👀 I’m interested in ...Sketching, Designing, Coding
+- 👀 I’m interested in ...Sketching, Designing & Coding
 - 🌱 I’m currently learning ...Web development and Graphic Designing
 - 📫 How to reach me ... ig - @kunal.ae , Email - kunalkumar24685@gmail.com
 
